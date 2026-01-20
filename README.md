@@ -1,4 +1,4 @@
-# Mrs. GREEN APPLE – ビターバカンス
+# Mrs. GREEN APPLE – ビターバカンス (Instrumental)
 
 > **歌詞登録ステータス：同期歌詞あり**
 
